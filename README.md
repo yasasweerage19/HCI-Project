@@ -1,0 +1,1 @@
+ecently completed a Figma project to redesign a website with poor user experience. Their approach included improving the interface, ensuring intuitive navigation, and boosting overall user engagement. The redesign aimed to create a more user-friendly and visually appealing online experience, enhancing accessibility and satisfaction for all users.
